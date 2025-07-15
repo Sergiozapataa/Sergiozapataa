@@ -29,7 +29,7 @@
 
 ## ✨ Otros perfiles
 
-- 💼 Cuenta profesional: [@LuisCamilo06](https://github.com/LuisCamilo06)
+- 💼 Cuenta profesional: [@SergioAndres-12](https://github.com/SergioAndres-12)
 - 📫 Contacto: **seanzapataaal45@gmail.com**
 
 ---
